@@ -8,7 +8,7 @@ it is to address what you did wrong, why it's wrong, and that you apologize to t
 EXAMPLE: You said something racist
 ```
 
-	"I just wanna say im not racist/sexist/homophobic/etc" WRONG. there's a reason why u did/said what you did/said. DO NOT DEFEND YOURSELF. This is an apology, not a rebutle
+	"I just wanna say im not racist/sexist/homophobic/etc" WRONG. there's a reason why u did/said what you did/said. DO NOT DEFEND YOURSELF. This is an apology, not a rebuttal
 	"I was just drunk at the time/going through some trauma/im neurodivergent" WRONG. There is no excuse for what you did or said. DO NOT DEFEND YOURSELF.
 	"There is no excuse for what i did and im sorry" CORRECT! You DO NOT want to try to get people to think you're a good person. You want to admit and address what you did or said. whether or not you're good depends on the apologees
 	""
